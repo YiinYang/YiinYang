@@ -3,7 +3,7 @@
      ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿
                           PESTKIT INT PLEASE !!!!
                                 He / any
-               C+H always welcome for friend check name if not friends
+                  C+H always welcome unless name says otherwise !
                           Dx(diagnosed) DID system !
                        Socially awkward iwc at all times !
                         None of our alters are taken <3
