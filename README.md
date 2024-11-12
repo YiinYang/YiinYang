@@ -7,7 +7,7 @@
                           Dx(diagnosed) DID system !
                        Socially awkward iwc at all times !
                         None of our alters are taken <3 /r
-                           [Platonic Partner](@cutiespaces).
+                         
                           
                          STATUS MEANING / INTS ? !
              - Offline : Hiding dniuc probably upset wit someone
