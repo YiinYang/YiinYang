@@ -7,6 +7,7 @@
                           Dx(diagnosed) DID system !
                        Socially awkward iwc at all times !
                         None of our alters are taken <3 /r
+                        [AAAAAAAAA](url)
                        
                           
                          STATUS MEANING / INTS ? !
