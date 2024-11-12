@@ -7,7 +7,7 @@
                           Dx(diagnosed) DID system !
                        Socially awkward iwc at all times !
                         None of our alters are taken <3
-                             place holder hai :3
+                              PLACE HOLDER
                           
                          STATUS MEANING / INTS ? !
              - Offline : Hiding dniuc probably upset wit someone
@@ -15,6 +15,7 @@
                 - Looking for chat : Interact pleasepleaseplease!
     - Looking for roleplay : I never use this probably for looks if anything ?
      - Busy : most often used Ints welcome probably with friends or chilling
+                    - Online : I never use this?? idk
                    w2i at all times incase im not paying attention !
 
                                 INT LIST ?! 
