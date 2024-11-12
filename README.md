@@ -2,12 +2,12 @@
                           
      ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿
                           PESTKIT INT PLEASE !!!!
-                                He / any
+                                They / Any
                   C+H PLEASE anytime unless name says otherwise !
                           Dx(diagnosed) DID system !
                        Socially awkward iwc at all times !
-                        None of our alters are taken <3
-                              PLACE HOLDER
+                        None of our alters are taken <3 /r
+                            [PLATONIC PARTNER](https://github.com/cutiespaces)
                           
                          STATUS MEANING / INTS ? !
              - Offline : Hiding dniuc probably upset wit someone
