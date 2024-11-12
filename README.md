@@ -16,7 +16,7 @@
     - Looking for roleplay : I never use this probably for looks if anything ?
      - Busy : most often used Ints welcome probably with friends or chilling
                     - Online : I never use this?? idk
-                   w2i at all times incase im not paying attention !
+              w2i at all times incase im not paying attention !
 
                                 INT LIST ?! 
                             (plsplspls interact)
