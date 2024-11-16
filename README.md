@@ -51,7 +51,9 @@
         If i ask you ever "who are you again?" PLEASSE DO NOT TAKE THIS TO OFFENSE !!!!
            i swear you matter to us :( WE GET KICKED FOR "innactivity" EVERY 15
     MINUTES OR SO !!!  DONT EVER BE AFRAID TO INTERACT WITH US UNLESS WE HAVE ANY DNI'S !!
-           Assume our skins are whoevers fronting unless they say "COS" or "COMF" 
+           Assume our skins are whoevers fronting unless they say "COS" or "COMF" also ,,
+           if we are hiding behind oomfs secifically hiding HIDING to where you can BARELY
+                      see us or cant at all pls dniu oomfs/close 
 
                           Name tags and meanings ? !
                            DNC : Do not copy/cover
